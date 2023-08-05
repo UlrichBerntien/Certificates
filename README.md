@@ -1,2 +1,2 @@
 # Ulrich Berntien
-Certifcates / Zeugnisse
+Certificates / Zeugnisse
